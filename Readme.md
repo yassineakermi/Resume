@@ -1,4 +1,4 @@
-Thanks for you interest.
+Thanks for your interest.
 
 This is my resume, I hope you find it interesting.
 
